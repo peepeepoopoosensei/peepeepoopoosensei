@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @peepeepoopoosensei
-- i dont like dick
+- i really like dogs
 - thats it basically
 
 <!---
